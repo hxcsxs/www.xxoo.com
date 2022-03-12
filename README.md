@@ -1,7 +1,7 @@
 # 含羞草实习所
 番号 三上悠亚 桥本有菜 七森莉莉 
 
-https://www.hxc9.vip
+https://www.hxc18.vip
 
 # 加入收藏夾防丢失
 https://github.com/hxcsxs/www.xxoo.com
